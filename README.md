@@ -48,4 +48,3 @@ The **Projects** showcased here evidence hands-on experience in the following es
 
 ---
 
-https://share.google/idvi2WM0IbwKK6PO7
